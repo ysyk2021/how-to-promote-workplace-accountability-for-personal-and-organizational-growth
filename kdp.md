@@ -39,5 +39,5 @@ MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles
 17. Decision-making strategies
 18. Emotional intelligence
 19. Work-life balance
-20. Workplace productivity.
+20. Workplace productivity
 
