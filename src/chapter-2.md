@@ -1,5 +1,3 @@
-Chapter 2: Understanding Workplace Accountability
-=================================================
 
 Understanding workplace accountability is essential to promoting workplace accountability and achieving personal and organizational growth. In this chapter, we will explore the definition of workplace accountability and the benefits it provides for employees and the organization.
 

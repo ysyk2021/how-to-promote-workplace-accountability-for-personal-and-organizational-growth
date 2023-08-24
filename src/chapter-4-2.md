@@ -1,5 +1,3 @@
-Techniques for setting clear expectations and goals
-====================================================================================================
 
 Setting clear expectations and goals is essential to promoting workplace accountability. In this chapter, we will explore the techniques for setting clear expectations and goals.
 

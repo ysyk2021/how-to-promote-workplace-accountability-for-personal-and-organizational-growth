@@ -1,5 +1,3 @@
-Common accountability issues in the workplace
-==========================================================================================================
 
 Identifying and addressing accountability issues is essential to promoting workplace accountability and achieving personal and organizational growth. In this chapter, we will explore some common accountability issues in the workplace and techniques for addressing them.
 

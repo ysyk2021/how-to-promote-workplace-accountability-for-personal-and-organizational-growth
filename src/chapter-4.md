@@ -1,5 +1,3 @@
-Chapter 4: Setting Clear Expectations and Goals
-===============================================
 
 Setting clear expectations and goals is essential to promoting workplace accountability and achieving personal and organizational growth. In this chapter, we will explore the importance of clear expectations and goals in workplace accountability and techniques for setting them.
 

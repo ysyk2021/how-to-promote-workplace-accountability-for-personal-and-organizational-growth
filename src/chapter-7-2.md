@@ -1,5 +1,3 @@
-Strategies for providing support for accountability and growth
-==========================================================================================================================
 
 Providing support is essential to promoting workplace accountability and personal and organizational growth. In this chapter, we will explore the strategies for providing support for accountability and growth.
 

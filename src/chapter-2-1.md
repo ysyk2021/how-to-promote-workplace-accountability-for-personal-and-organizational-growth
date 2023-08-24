@@ -1,5 +1,3 @@
-Definition of Workplace Accountability
-=========================================================================================
 
 Workplace accountability is essential to promoting personal and organizational growth. In this chapter, we will explore the definition of workplace accountability and what it means in practice.
 

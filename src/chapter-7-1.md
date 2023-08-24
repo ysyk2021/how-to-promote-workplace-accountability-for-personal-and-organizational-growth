@@ -1,5 +1,3 @@
-Importance of support for accountability and growth in the workplace
-================================================================================================================================
 
 Providing support for accountability and growth is essential to promoting workplace accountability and achieving personal and organizational growth. In this chapter, we will explore the importance of support for accountability and growth in the workplace and techniques for providing it.
 

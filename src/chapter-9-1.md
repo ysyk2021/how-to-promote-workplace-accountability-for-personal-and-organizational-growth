@@ -1,5 +1,3 @@
-Common obstacles to workplace accountability
-=========================================================================================================
 
 While promoting workplace accountability is essential to achieving personal and organizational growth, it is not always easy. There can be various obstacles that hinder the development of a culture of accountability in the workplace. In this chapter, we will explore common obstacles to workplace accountability and techniques for overcoming them.
 

@@ -1,5 +1,3 @@
-Importance of a Culture of Accountability in the Workplace
-===========================================================================================================
 
 Creating a culture of accountability is essential to promoting personal and organizational growth. In this chapter, we will explore why a culture of accountability is important and how it can be fostered within the workplace.
 

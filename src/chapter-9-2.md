@@ -1,5 +1,3 @@
-Strategies for Overcoming These Obstacles
-======================================================================================================
 
 Promoting workplace accountability is essential for personal and organizational growth. However, there may be obstacles that prevent employees from being accountable for their work. In this chapter, we will explore strategies for overcoming these obstacles.
 

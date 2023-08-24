@@ -1,5 +1,3 @@
-Chapter 9: Overcoming Obstacles to Workplace Accountability
-===========================================================
 
 Promoting workplace accountability is essential to achieving personal and organizational growth. However, there can be obstacles that hinder the implementation of workplace accountability. In this chapter, we will explore common obstacles to workplace accountability and strategies for overcoming them.
 

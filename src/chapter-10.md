@@ -1,5 +1,3 @@
-Chapter 10: Implementation Strategies for Lasting Change
-========================================================
 
 Implementing lasting change in an organization requires a strategic approach. In this chapter, we will explore two key strategies for implementing workplace accountability and promoting personal and organizational growth.
 

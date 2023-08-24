@@ -1,5 +1,3 @@
-Techniques for incorporating accountability into company policies and practices
-============================================================================================================================================================
 
 Incorporating accountability into company policies and practices is essential to promoting workplace accountability and achieving personal and organizational growth. In this chapter, we will explore the techniques for incorporating accountability into company policies and practices.
 

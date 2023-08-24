@@ -1,5 +1,3 @@
-Chapter 5: Effective Communication and Feedback
-===============================================
 
 Effective communication and feedback are essential to promoting workplace accountability and achieving personal and organizational growth. In this chapter, we will explore the importance of effective communication and feedback in workplace accountability and techniques for giving and receiving feedback constructively.
 

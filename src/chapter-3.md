@@ -1,5 +1,3 @@
-Chapter 3: Creating a Culture of Accountability
-===============================================
 
 Creating a culture of accountability is essential to promoting workplace accountability and achieving personal and organizational growth. In this chapter, we will explore the importance of a culture of accountability in the workplace and techniques for promoting it.
 

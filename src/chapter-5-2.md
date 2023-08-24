@@ -1,5 +1,3 @@
-Techniques for giving and receiving feedback constructively
-============================================================================================================
 
 Effective communication and feedback are essential to promoting workplace accountability and achieving personal and organizational growth. In this chapter, we will explore techniques for giving and receiving feedback constructively.
 

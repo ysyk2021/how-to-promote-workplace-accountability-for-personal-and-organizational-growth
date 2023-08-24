@@ -1,5 +1,3 @@
-Tracking progress and celebrating successes
-=====================================================================================================
 
 Implementing lasting change is essential to promoting workplace accountability and personal and organizational growth. In this chapter, we will explore the strategies for tracking progress and celebrating successes.
 

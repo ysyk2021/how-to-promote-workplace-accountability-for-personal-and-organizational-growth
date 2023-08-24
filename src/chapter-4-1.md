@@ -1,5 +1,3 @@
-Importance of Clear Expectations and Goals in Workplace Accountability
-=======================================================================================================================
 
 Setting clear expectations and goals is essential to promoting accountability in the workplace. In this chapter, we will explore the importance of setting clear expectations and goals and how they contribute to workplace accountability.
 

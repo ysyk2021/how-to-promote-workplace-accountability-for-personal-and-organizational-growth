@@ -1,5 +1,3 @@
-Benefits of Workplace Accountability for Employees and the Organization
-==========================================================================================================================
 
 Workplace accountability is essential to promoting personal and organizational growth. In this chapter, we will explore the benefits of workplace accountability for employees and organizations.
 

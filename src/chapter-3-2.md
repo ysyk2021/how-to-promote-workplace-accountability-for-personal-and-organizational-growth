@@ -1,5 +1,3 @@
-Techniques for Promoting a Culture of Accountability
-=====================================================================================================
 
 Creating a culture of accountability is crucial to promoting personal and organizational growth. In this chapter, we will explore techniques that organizations can use to promote a culture of accountability in the workplace.
 

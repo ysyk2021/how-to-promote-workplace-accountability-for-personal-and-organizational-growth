@@ -1,5 +1,3 @@
-Chapter 6: Identifying and Addressing Accountability Issues
-===========================================================
 
 Identifying and addressing accountability issues is essential to promoting workplace accountability and achieving personal and organizational growth. In this chapter, we will explore common accountability issues in the workplace and techniques for identifying and addressing them.
 

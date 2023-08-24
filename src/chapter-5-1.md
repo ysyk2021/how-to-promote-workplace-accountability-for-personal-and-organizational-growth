@@ -1,5 +1,3 @@
-Overview of effective communication and feedback in workplace accountability
-=============================================================================================================================
 
 Effective communication and feedback are essential to promoting workplace accountability. In this chapter, we will explore the importance of effective communication and feedback in workplace accountability and techniques for implementing them.
 
